@@ -1,1 +1,1 @@
-# RITE-Secundaria-7
+# MiSecundaria7
